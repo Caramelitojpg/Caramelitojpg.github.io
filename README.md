@@ -1,2 +1,2 @@
-# CaramelitoJPG.github.io
+# Caramelitojpg.github.io
 MI REPOSITORIO
